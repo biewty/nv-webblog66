@@ -1,3 +1,3 @@
 # WEB-BLOG
-Phuriwat Saranai
-64314523
+Waranya Muninsan
+64315209
